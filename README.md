@@ -1,1 +1,0 @@
-# guayaquilpd24en
